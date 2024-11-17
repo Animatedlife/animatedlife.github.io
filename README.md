@@ -1,1 +1,0 @@
-# animatedlife.github.io
